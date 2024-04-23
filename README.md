@@ -8,6 +8,8 @@
 
 ⚡ Aquí podrás encontrar trabajo de calidad con respuestas efectivas y bien analizadas.
 
+⚡ Si quieres contactarme no dudes en hacerlo por aquí: barriosv.ingrid22@gmail.com o en [mi perfil de linkedin.](https://www.linkedin.com/in/ingrid-barrios-v-dataing/)
+
 ### ¡Bienvenidos!
 
 
